@@ -1,8 +1,8 @@
-# 空瓶影业 KengPin Moviiii Co., Ltd
+# 空瓶影业 空平映像工業(株) KengPin Moviiii Co., Ltd
 
 <font color="yellow">114,514,191？！</font><br>
 
-<font color="brown">1919810！！❤</font><br>
+<font color="brown">1919810！！</font><br>
 
 <font color="red">喧嚣の小猫！</font><br>
 
